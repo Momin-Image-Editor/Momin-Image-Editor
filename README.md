@@ -35,11 +35,8 @@ If you’re an e-commerce business owner, product photographer, or agency lookin
 📩 Let’s connect or message me to discuss your next project!
 
 📞 Send a Free Trial Job
-
 🌐 Website: https://clippingpathagent.com/
-
 📩 Email: nexus.maminul@gmail.com
-
 📍 Location: Gaibandha, Dhaka, Bangladesh
 
 Skills: 🛒E-commerce Image Editing 👕Shopify Image Editing 👟Background Removal 🖌Photo Retouching 🌈Color Correction 🖌Shadow Creation 💼Product Photo Enhancement

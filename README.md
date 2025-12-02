@@ -10,6 +10,7 @@ I started my journey over a decade ago with a simple mission to help e-commerce 
 Today, I’m proud to be recognized as a Top-Rated Product Photo Editing Expert, trusted by online store owners, photographers, and digital agencies worldwide. My work consistently helps clients achieve higher click-through rates, better brand impressions, and increased conversions on platforms like Amazon, eBay, Shopify, Etsy, and WooCommerce.
 
 🟧 Why Choose Me?
+
 ✅ 10+ Years of Professional Experience in E-commerce Image Editing
 ✅ 500+ Successful Projects Completed on Upwork, Fiverr & PeoplePerHour
 ✅ Skilled in Background Removal, Shadow Creation, Color Correction & Retouching
@@ -17,6 +18,7 @@ Today, I’m proud to be recognized as a Top-Rated Product Photo Editing Expert,
 ✅ Experience Working with International Brands and Product Photographers
 
 🟧 My Expertise Includes:
+
 ✔ Background Removal / White Background
 ✔ Natural & Drop Shadow Creation
 ✔ Color Correction & Reflection Shadow
@@ -25,6 +27,7 @@ Today, I’m proud to be recognized as a Top-Rated Product Photo Editing Expert,
 ✔ Bulk Image Editing for E-commerce Stores
 
 🟩 My Results Speak for Themselves:
+
 📈 10,000+ Product Images Enhanced for Global E-commerce Brands
 📈 Helped Clients Increase Product Clicks & Sales through Clean, Consistent Visuals
 📈 Supported Startups and Agencies in Building Strong Visual Brand Identities
@@ -35,11 +38,8 @@ If you’re an e-commerce business owner, product photographer, or agency lookin
 📩 Let’s connect or message me to discuss your next project!
 
 📞 Send a Free Trial Job
-
 🌐 Website: https://clippingpathagent.com/
-
 📩 Email: nexus.maminul@gmail.com
-
 📍 Location: Gaibandha, Dhaka, Bangladesh
 
 Skills: 🛒E-commerce Image Editing 👕Shopify Image Editing 👟Background Removal 🖌Photo Retouching 🌈Color Correction 🖌Shadow Creation 💼Product Photo Enhancement
